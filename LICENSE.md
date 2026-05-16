@@ -1,4 +1,4 @@
-# 
+# ultimate pump.fun sniper bot | degen-coin-scanning + low-cap-gem-detection offers the most advanced pump.fun sniper bot, with degen-coin-scanning and low-cap-gem-detection. Ideal
 
 
 
